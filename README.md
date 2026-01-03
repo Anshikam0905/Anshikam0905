@@ -26,7 +26,7 @@ I’m a passionate developer who enjoys building real-world applications and con
 ## 🌐 Connect With Me
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/anshika-mourya-542414365)
-- 💻 [GitHub](https://github.com/Anshikam0905)
+- 💻 [Email](anshikam0905@gmail.com)
 
 ---
 
